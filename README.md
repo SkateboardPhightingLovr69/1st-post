@@ -1,2 +1,1 @@
-# objectifiedobjectifiedobjectifed
-link to super cool webcomic objectified 
+1st post apparently how do i do this 
